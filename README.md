@@ -38,8 +38,4 @@ Concluindo, investir na elaboração de um currículo de qualidade é essencial 
 
 
 
-🔗
-
-
-
 #RecursosHumanos #Mentoria #DesenvolvimentoProfissional #Carreira #Currículo #Vagas #Emprego #Oportunidades #RH #LinkedIn
